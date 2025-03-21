@@ -1,0 +1,10 @@
+{
+  "promptDelete": false,
+  "strictLineBreaks": true,
+  "showLineNumber": true,
+  "readableLineLength": true,
+  "rightToLeft": false,
+  "showIndentGuide": true,
+  "tabSize": 4,
+  "showUnsupportedFiles": false
+}
