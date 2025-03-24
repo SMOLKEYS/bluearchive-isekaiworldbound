@@ -1,3 +1,4 @@
+
 And, again, you have returned.
 
 Well, I'm not gonna keep you here for long.
@@ -67,4 +68,42 @@ Somehow, I could feel a sorry gaze from Akira, saying "*Good luck explaining eve
 ...god damn it.
 
 ---
+
+"*Enough explanations for one day, please...*" I muse to my own thoughts as we make our way to Shiba Seki Ramen.
+
+"U-he~, that thing is really convenient, isn't it?" Hoshino says to Zen, as he uses the gravity gun to carry a flat wall of white wool blocks above our heads, acting as a sort of makeshift umbrella.
+
+"It really is, honestly. Overhead morning sunlight sucks sometimes." He responds back.
+
+...
+
+"*Hmm... what kind of synergies can our weapons have?*" I think to myself.
+
+As it apparently turns out, Zen's gravity gun is fully capable of also picking up Minecraft blocks. We found this out before leaving to Shiba Seki Ramen to cheer up Ayane after her outburst, while not very willing to deal with the sun.
+
+For some reason, that synergy combo reminds me of [something](https://www.curseforge.com/minecraft/mc-mods/gravity-gun), but I can't seem to put a finger on it...
+
+Eh, whatever, probably not important.
+
+After another bit of walking, we eventually reach our destination.
+
+"*So, this is what the place looks like in-person...*"
+
+As my thought process does its thing, a really nice aroma reaches my nose. "*Is that the ramen?*"
+
+However, before I could even continue my thoughts-
+
+*Grumble...*
+
+-I hear my own stomach grumble loudly from hunger. At the same time, the other 4 also happen suffer the same fate.
+
+...
+
+"*...actually, when was the last time we ate something?*"
+
+Looking back at the group, I notice the Abydos girls and Sensei looking at us.
+
+"...when did you all last eat?" Sensei asks us, breaking the silence.
+
+"I... uh... I don't know." Akira responds for us.
 
